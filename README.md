@@ -1,1 +1,0 @@
-# pengetuafomu0k
